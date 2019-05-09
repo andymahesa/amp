@@ -1,0 +1,2 @@
+# amp
+cara mudah 
